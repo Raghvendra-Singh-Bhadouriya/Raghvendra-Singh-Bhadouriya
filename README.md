@@ -84,4 +84,4 @@ https://i.pinimg.com/originals/81/17/8b/81178b47a8598f0c81c4799f2cdd4057.gif
 
 in.linkedin.comin.linkedin.com
 Raghvendra Bhadouriya | LinkedIn
-Passionate about learning and pushing the boundaries of web development, I find joy in acquiring new skills and knowledge. The intersection of creativity and technology is where I thrive, and I'm always eager to explore innovative solutions. I see web development not just as a career but as a continuous journey of growth. | Learn more about Vinay Kumar's work experience, education, connections & more by visiting their profile on LinkedIn
+Passionate about learning and pushing the boundaries of web development, I find joy in acquiring new skills and knowledge. The intersection of creativity and technology is where I thrive, and I'm always eager to explore innovative solutions. I see web development not just as a career but as a continuous journey of growth. | Learn more about Raghvendra Bhadouriya's work experience, education, connections & more by visiting their profile on LinkedIn
